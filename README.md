@@ -12,7 +12,7 @@
     📅 Routine-oriented: I prefer routine but find a lot of joy in spontaneous activities.
     💞 Considerate: I prioritize others' needs but also take care of myself.
     🔮 Future-focused: I tend to plan for and think about the future.
-    🤐 Reserved: I find it difficult to express your emotions to others.
+    🤐 Reserved: I find it difficult to express my emotions to others.
     🕵️ Analytical: I approach situations with a more analytical mindset.
     🌟 Open to novelty: I enjoy trying new things and exploring new experiences.
     🤲 Altruistic: I am motivated by helping others succeed.
