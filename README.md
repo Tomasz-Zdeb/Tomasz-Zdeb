@@ -1,5 +1,5 @@
 ### Tomasz Zdeb 👨🏻‍💻
-🏢 Junior Software Engineer at Capgemini | 👨🏻‍🎓 Computer Science student at Cracow University of Technology
+🏢 Software Engineer | 👨🏻‍🎓 Computer Science Student
 
     😃 Social: I enjoy being around others and engaging in social activities.
     💪 Resilient: I am open to learning from criticism, even if it's not pleasant.
